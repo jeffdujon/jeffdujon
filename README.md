@@ -1,2 +1,1 @@
-basketball
 conspicuous consumption
